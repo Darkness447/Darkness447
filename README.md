@@ -1,4 +1,4 @@
-### Don't judge me by this GitHub account; ask about my real one.
+### Don't judge me by this GitHub account [\ \] ask about my real one.
 .
 .
 .
