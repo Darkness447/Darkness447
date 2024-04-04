@@ -1,3 +1,15 @@
-### Don't judge me by this github account ask me real one
-### Learning How to Learn New Stuffs
+### Don't judge me by this GitHub account; ask about my real one.
+.
+.
+.
+.
+.
+### Mastering the Art of Learning New Tech
+
+
+
+
+
+
+
 
