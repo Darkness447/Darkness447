@@ -4,7 +4,7 @@
 . <br/>
 . <br/>
 . <br/>
-### Mastering the Art of Learning New Tech and Waiting to make this account real one
+### Mastering the Art of Learning New Tech and Waiting For This account to become real one
 
 
 
